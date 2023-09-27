@@ -7,3 +7,4 @@ Teil 2: https://youtu.be/rqMnkJxMx7c
 This scriptk script belongs to my DIY project Popup Ghost<br/>
 Part 1: https://youtu.be/LA2OBMDmIsM<br/>
 Part 2: https://youtu.be/q-GVwPbiVDk
+ 
