@@ -3,7 +3,7 @@
 ## German
 
 Videos findet ihr auf meinem YouTube Kanal
-https://www.youtube.com/c/OldSchoolHaunter
+https://www.youtube.com/@OldSchoolHaunter
 
 Old School Haunter auf Facebook
 https://www.facebook.com/OldSchoolHaunter
@@ -16,7 +16,7 @@ https://www.instagram.com/oldschoolhaunter/
 
 ## English
 You can find videos on our YouTube channel
-https://www.youtube.com/c/OldSchoolHaunter
+https://www.youtube.com/@OldSchoolHaunter
 
 Old School Haunter on Facebook
 https://www.facebook.com/OldSchoolHaunter
