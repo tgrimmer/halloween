@@ -1,11 +1,11 @@
 # Mr. Bubbles
 
 Dieses Script gehört zu meinem Halloweenprojekt Mr. Bubbles - Der Horror Fisch
-Teil 1: 
+Teil 1: https://youtu.be/yLUTqfhAeqE
 
 
 This scriptk script belongs to my DIY project Mr. Bubbles - The Horror Fish
-Part 1: 
+Part 1: https://youtu.be/QRJNfosNMuU
 
 
 
